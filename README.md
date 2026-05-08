@@ -1,1 +1,1 @@
-# Analysis of political position the court project
+# Analysis about the influence of ideology in judicial behaviour
